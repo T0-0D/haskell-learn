@@ -1,2 +1,2 @@
 # haksell-something
-[undecided] recommended by jumang4223 / haven't decided what to do yet
+[undecided] recommended by jumang4423 / haven't decided what to do yet
